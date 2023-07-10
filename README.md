@@ -8,8 +8,8 @@ Step 3: Visit <a href="https://threadsvideodownloader.in/"> threadsvideodownload
 
 Step 4: The image you want to download will appear. Right-click on the image and select "Save As" to save it, and it will be saved to your device.
 
-<a href="https://threadsvideodownloader.in/"> Download Video from Threads </a>
-<a href="http://threadsdpdownload.com/"> Download DP from Threads </a>
+<a href="https://threadsvideodownloader.in/"> Download Video from Threads </a> <br>
+<a href="https://threadsdpdownload.com/"> Download DP from Threads </a>
 
 Check 👉 <a href="https://threadsvideodownloader.in/"> Threads Video Downloader </a> <br>
 Check 👉 <a href="https://threadsdpdownload.com/"> Threads DP Downloader </a>
